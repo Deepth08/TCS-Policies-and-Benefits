@@ -1,1 +1,1 @@
-# TCS-Policies-and-Benefits
+# TCS-Policies-and-Benefits Manual
